@@ -1,2 +1,1 @@
-I fork repositories for properity...
-Anyway, I play Priconne and Genshin.
+I play Priconne and Genshin, and I fork repos for archiving.
