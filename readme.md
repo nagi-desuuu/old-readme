@@ -1,2 +1,1 @@
-I play Priconne and Genshin, and I fork repos for archiving.
-  [![HitCount](https://hits.dwyl.com/toadsworth-jr/toadsworth-jr.svg?style=flat-square&show=unique)](http://hits.dwyl.com/toadsworth-jr/toadsworth-jr)
+I play Priconne and Genshin, and I fork repos for archiving. clods5XG in osu, Lazurite_Greenland everywhere else. [![HitCount](https://hits.dwyl.com/toadsworth-jr/toadsworth-jr.svg?style=flat-square&show=unique)](http://hits.dwyl.com/toadsworth-jr/toadsworth-jr)
